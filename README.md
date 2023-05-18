@@ -1,0 +1,2 @@
+# Up
+Gunakan dengan bijak
